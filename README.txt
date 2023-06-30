@@ -1,1 +1,0 @@
-chat by usin Skype
